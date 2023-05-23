@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SlowArmoredWarrior
-- 
-- 📫 How to reach me ... no, you cannot by the moment
+
+- 📫 How to reach me ? ... no, you cannot by the moment
 
 
 
